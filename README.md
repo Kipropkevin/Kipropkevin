@@ -11,7 +11,7 @@
 
 -💬 Ask me about anything
 
--📫 How to reach me: Twitter - @KevinKiprop
+-📫 How to reach me: Twitter - @KevinKwanusu
 
 -😄 Pronouns: He/Him
 -->
